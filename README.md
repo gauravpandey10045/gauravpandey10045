@@ -6,6 +6,7 @@ I am a Civil Engineer and M.Tech student in **Infrastructure Engineering and Man
 
 ### 🌐 Connect with Me
 * **LinkedIn:** [linkedin.com/in/gaurav-raj-pandey](https://www.linkedin.com/in/gaurav-raj-pandey)
+* **ResearchGate:** [researchgate.net/profile/Gaurav-Raj-Pandey](https://www.researchgate.net/profile/Gaurav-Raj-Pandey)
 * **Email:** gauravpandey10045@gmail.com / gaurav.rp@iitg.ac.in
 * **Location:** Guwahati, India
 
